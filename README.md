@@ -1,2 +1,2 @@
 # Slothing-new-
-Not sure hat I'm doing here
+Not sure what I'm doing here, but going to be fun trying to figure this out 
